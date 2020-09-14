@@ -28,4 +28,5 @@ The 2 then escaped and returned to what they call their house.
 They were safe.
 For now...
 Jaysee could not stand Scott's scream and came out of the sewage system,throwing feces at Scott. Jaysee also send a troop of apes armed with ak47 to attack Scott. Scott was not aware and almost died in the fight. Scott was triggered, very triggered. Scott took a frying pan and started whacking Jaysee, but Jaysee's body-protection was too strong and broke the frying pan. Scott ran away, Jaysee was victorious.
+Jaysee then ran after Scott, with his apes screaming after SCott. The apes then took the gun and shot at Scott, but Scott screamed again, causing the bullets to fly back at Jaysee where they bounced of his stomach
 
